@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### It's true I'm currently looking for a intership! It's free work, how can you sen no :) 
+### It's true I'm currently looking for a intership! (It's free) 
 
 Let's do a summary for what's actually is "about me" and about my life right now :) 
 
