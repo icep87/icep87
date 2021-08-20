@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+### It's true I'm currently looking for a intership! It's free work, how can you sen no :) 
+
 Let's do a summary for what's actually is "about me" and about my life right now :) 
 
 I've had a passion for coding since a young age. It all started with QBasic. During the last 12 years, I've been mainly working with other things but the software development was still part of those 12 years. I've been developing internal tools to speed our process and cut down on human errors.   
